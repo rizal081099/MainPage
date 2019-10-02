@@ -1,0 +1,1 @@
+tempat menaruh file images
